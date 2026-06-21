@@ -1,4 +1,4 @@
-# Waiting-in-Paris-An-Austrian-migr-Family-Collection-1860-1942
+# Waiting in Paris 
 ### An Austrian Émigré Family Collection, 1860–1942
 
 A processed archival collection - Exhibit 02
